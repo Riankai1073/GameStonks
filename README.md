@@ -40,7 +40,7 @@
 
 
 **Addition/bugss**
-Rian sucks!!!!
+Rian is elite!!!!
 Angel rules 
 Joel rules
 
