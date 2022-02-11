@@ -40,9 +40,10 @@
 
 
 **Addition/bugss**
-Rian is elite!!!!
-Angel rules 
-Joel rules
+- Rian is sucks. He is horrible!!!! He deserves an F. 
+- Angel rules since he's a good programmer
+- Joel rules.
+
 
 
 
