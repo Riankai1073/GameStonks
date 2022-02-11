@@ -42,7 +42,7 @@
 **Addition/bugss**
 - Rian Carinogen sucks. He is horrible!!!! He deserves an F. 
 - Angel rules since he's a good programmer
-- Joel rules.
+- Joel Rules.
 
 
 
